@@ -18,7 +18,7 @@ Ben Marler :
 
 Ben Welsh : 
 
-Chelsea Kwan : 
+Chelsea Kwan : I tried one new sport every year when I was a kid
 
 Deekshita Madhalam : 
 
